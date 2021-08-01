@@ -1,11 +1,11 @@
 # Projeto.Art2021
 
-## 1º
+## 1º Como Atender um Cliente
 
-## 2°
+## 2° Sejá jentil é Cortez.
 
-## 3°
+## 3° Estéja Sempre Sorrindo
 
-## 4º
+## 4º Mantenha a Calma nos momentos mais dificeis.  
 
-## 5º
+## 5º 
