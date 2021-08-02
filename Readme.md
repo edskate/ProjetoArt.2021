@@ -6,6 +6,8 @@
 
 ## 3° Estéja Sempre Sorrindo
 
-## 4º Mantenha a Calma nos momentos mais dificeis.  
+## 4º Mantenha a Calma nos momentos de temporada.  
 
-## 5º 
+## 5º manter sempre a calma .
+
+  
