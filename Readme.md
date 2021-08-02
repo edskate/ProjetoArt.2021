@@ -8,7 +8,4 @@
 
 ## 4º Mantenha a Calma nos momentos de temporada.  
 
-## 5º manter sempre a calma .
 
-## 6° final 
-  
